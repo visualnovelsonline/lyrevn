@@ -1,1 +1,1 @@
-# lyrevn
+https://visualnovelsonline.github.io/lyrevn/
